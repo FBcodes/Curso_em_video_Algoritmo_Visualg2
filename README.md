@@ -1,0 +1,1 @@
+# Curso_em_video_Algoritmo_Visualg2
